@@ -1,10 +1,10 @@
-Premium NordVPN Utilitário | troca de servidor + suporte PPTP é o melhor NordVPN utilitário com troca de servidor e suporte PPTP. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/nordvpn-wn22/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
